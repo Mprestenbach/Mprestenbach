@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mprestenbach
-- 👀 I’m interested in ...In LSU sports. and playing pool.
+- 👀 I’m interested in ...LSU sports. and playing pool.
 - 🌱 I’m currently learning ...Cybersecurity
 - 💞️ I’m looking to collaborate on ... I have no clue because I do not know what to do.
 - 📫 How to reach me ...Mprestenbach@my.waketech.edu
